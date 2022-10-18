@@ -1,2 +1,2 @@
 # First-Class-Interior
-This project is about a design for captive interiors
+The Auckland-based business "Captivate Interiors" awarded your company a contract. This business is well known for providing top-notch interior design services for a variety of buildings, including homes, restaurants, businesses, schools, casinos, and more. The Captivate Interiors firm is searching for a more interactive and user-friendly website. The corporation wants to expand across the nation to increase the benefits from their business.
